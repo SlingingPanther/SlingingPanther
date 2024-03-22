@@ -6,4 +6,4 @@ I’m interested in engineering and computer based science, specifically looking
 
 Find me on discord with the username "slingingpanther", that's about it.
 
-Wanted more on me? Well too bad! Ill expand/add this more in the future anyways. Fairwell.
+Wanted more on me? Well too bad! I'll expand/add this more in the future anyways. Fairwell.
